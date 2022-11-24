@@ -1,0 +1,2 @@
+# acadegamer
+gamer y otaku
